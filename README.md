@@ -9,7 +9,7 @@
 - 💞️ I’m looking to collaborate on ...hh
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... chakkaphunhellowoldfssfa
+- ⚡ Fun fact: ... xxxxxxxxxxxxxxxx
 
 
 - 
